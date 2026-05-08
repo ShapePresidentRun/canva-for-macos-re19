@@ -1,4 +1,4 @@
-
+Get the ultimate Canva for macOS automation with automatic Canva for macOS Automation | raw-file-support + text-animation. Featuring raw-file-support and text-animation, it's the
 
 
 
